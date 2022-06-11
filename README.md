@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jacob @zargooshifar
+- 👋 Hi, I’m Jacob (Yaghoub, Yaqub or whatever...) @zargooshifar
 - 👀 I’m interested in creating things... in any kind!
 - 🌱 I’m currently learning to be a better person every day!
 - 📫 How to reach me, https://t.me/aco0ob or zargooshifar@outlook.com 
